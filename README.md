@@ -21,3 +21,7 @@ I have attached my resume for your review, which provides further details about 
 I would appreciate the opportunity to discuss how my skills can contribute to the success of the Company. I am available for an interview at your convenience, either in person or through a video call. Please let me know if there are any specific documents or references you would like me to provide.
 
 Thank you for considering my application. I look forward to the possibility of joining your company and contributing to its continued growth and success.
+
+Resume univ Format.
+
+Resume Normal.
